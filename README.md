@@ -12,3 +12,5 @@ Layout, whip, full, aerial.
 Back flip off of wall
 Full on trampoline
 Tricks that I will never learn:
+I will never learn to do a flick on the balance beam.
+I will never do a round off back hand spring onto vault.
